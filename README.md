@@ -1,2 +1,2 @@
 # Synapse-X-3-3-2023-
-A newer crack of roblox exploit synapse X
+A Newer crack of Roblox Executer, Synapse X
